@@ -1,0 +1,1 @@
+# OZEinformatyka.pl
